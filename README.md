@@ -1,3 +1,1 @@
-IF YOUR IN MY DISCORD YOU KNOW WHAT THIS IS
-Fortnite Exector by @glyphaj
-IF YOUR IN MY DISCORD YOU KNOW WHAT THIS IS
+roblox executor
